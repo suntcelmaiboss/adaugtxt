@@ -1,0 +1,2 @@
+# adaugtxt
+Sugi pula Dani
